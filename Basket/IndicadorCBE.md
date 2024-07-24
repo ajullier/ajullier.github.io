@@ -1,3 +1,7 @@
+---
+theme: "jekyll-theme-hacker"
+---
+
 # Indicador CBE [^1]
 
 En el verano de 1986, el entrenador de los Lakers, Pat Riley, inventó un sistema llamado CBE (Mejor Esfuerzo para una Carrera o por sus siglas en inglés Carrer Best Effort).
@@ -64,4 +68,4 @@ A partir de mi experiencia personal, se puede mejorar el CBE a partir de los sig
 
 # Referencias
 
- [^1] *Habítos Atómicos*. James Clear.
+ [^1]: *Habítos Atómicos*. James Clear.
