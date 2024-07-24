@@ -1,7 +1,3 @@
----
-theme: "jekyll-theme-hacker"
----
-
 # Indicador CBE [^1]
 
 En el verano de 1986, el entrenador de los Lakers, Pat Riley, inventó un sistema llamado CBE (Mejor Esfuerzo para una Carrera o por sus siglas en inglés Carrer Best Effort).
