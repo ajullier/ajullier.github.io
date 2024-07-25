@@ -8,10 +8,6 @@ Cada jugador debería calcular su propio indicador de rendimiento y mejorarlo. P
 
 # ¿Cómo mejorar mi CBE?
 A partir de mi experiencia personal, se puede mejorar el CBE a partir de los siguientes aspectos:
-
-<p>.</p>
-<p>.</p>
-<p>.</p>
  
 ## Puntos
  
@@ -38,7 +34,6 @@ A partir de mi experiencia personal, se puede mejorar el CBE a partir de los sig
 
 <p>.</p>
 <p>.</p>
-<p>.</p>
   
 ## Asistencias y Evitar Pérdidas de Balón
   
@@ -60,7 +55,6 @@ A partir de mi experiencia personal, se puede mejorar el CBE a partir de los sig
 
 <p>.</p>
 <p>.</p>
-<p>.</p>
   
 ## Rebotes
   
@@ -74,7 +68,6 @@ A partir de mi experiencia personal, se puede mejorar el CBE a partir de los sig
 
 <p>.</p>
 <p>.</p>
-<p>.</p>
  
 ## Actos Heróicos
  
@@ -82,7 +75,6 @@ A partir de mi experiencia personal, se puede mejorar el CBE a partir de los sig
 
 ### 2. Repasar cita del libro "Hábitos Atómicos" en el apartado indicador cbe.
 
-<p>.</p>
 <p>.</p>
 <p>.</p>
  
