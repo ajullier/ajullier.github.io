@@ -1,3 +1,7 @@
+<header>
+  ...
+</header>
+
 La palabra **“Dios”** tiene una historia fascinante que se remonta a las profundidades del lenguaje indoeuropeo, y conecta con conceptos de luz, divinidad y poder celestial.
 
 ### 🌟 Origen etimológico

@@ -1,3 +1,7 @@
+<header>
+  ...
+</header>
+
 La palabra **“planeta”** tiene un origen que evoca movimiento, misterio y antigüedad. No viene de que sean “planos” —aunque ese chiste ya lo hicieron los medievales— sino de que **vagan por el cielo**.
 
 ### 🌌 Etimología y significado original
