@@ -2,7 +2,7 @@
 
 **Cito** apartado donde defino el origen de la palabra Dios para mayor comprensión del lector:
 
-[DIOS](Bible\Definitions\God)
+[DIOS]([ajullier.github.ioBible\Definitions\Planet.html](https://ajullier.github.io/Bible/Definitions/God))
 
-<iframe src="Bible\Definitions\Why" width="100%" height="200px" style="border: 1px solid #ccc; border-radius: 8px;"></iframe>
+<iframe src="[Bible\Definitions\God.html](https://ajullier.github.io/Bible/Definitions/God)" width="100%" height="200px" style="border: 1px solid #ccc; border-radius: 8px;"></iframe>
 
