@@ -2,4 +2,6 @@
 [Capitulo1](https://ajullier.github.io/GlorySins/Chapters/Capitulo1)
 
 [Characters](https://ajullier.github.io/GlorySins/Characters/Personajes)
-[Resumen](https://ajullier.github.io/GlorySins/Characters/Soberbia)
+[Soberbia](https://ajullier.github.io/GlorySins/Characters/Soberbia)
+
+[Pereza](https://ajullier.github.io/GlorySins/Characters/Pereza)
