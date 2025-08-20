@@ -5,3 +5,4 @@
 [Soberbia](https://ajullier.github.io/GlorySins/Characters/Soberbia)
 
 [Pereza](https://ajullier.github.io/GlorySins/Characters/Pereza)
+[Envidia](https://ajullier.github.io/GlorySins/Characters/Envidia)
