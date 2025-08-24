@@ -9,19 +9,19 @@
 ## Leviatán
 
 ## 7 Pecados Capitales
-serpiente 🐍 = soberbia
+serpiente 🐍 = soberbia OK
 
-pavo real🦚 = envidia
+pavo real🦚 = envidia OK
 
 sapo 🐸 = avaricia
 
 león 🦁 = ira
 
-caracol 🐌 = pereza
+caracol 🐌 = pereza OK
 
-cerdo 🐖 = gula
+cerdo 🐖 = gula OK
 
-cabra 🐐 = lujuria
+cabra 🐐 = lujuria OK
 
 ```mermaid
 graph TD;
