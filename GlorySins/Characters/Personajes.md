@@ -13,7 +13,7 @@ serpiente 🐍 = soberbia OK
 
 pavo real🦚 = envidia OK
 
-sapo 🐸 = avaricia
+sapo 🐸 = avaricia OK
 
 león 🦁 = ira
 
