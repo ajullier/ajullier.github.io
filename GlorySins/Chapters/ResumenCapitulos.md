@@ -2,7 +2,7 @@
 
 | Nº | Título | Tema narrativo | Correspondencia simbólica |
 |----|--------|----------------|---------------------------|
-| **I** | El Llamado del Cielo | Descenso y misión de los ángeles | Unidad primordial — **1** como origen de todo |
+| **I** | El UNO | ¿Qué es el uno? ¿Qué es la verdad? ¿Qué soy si no existiera la verdad? | Unidad primordial como orden del todo |
 | **II** | La Dualidad Divina | Conflicto entre Justicia (*Din*) y Misericordia (*Rachamim*) | Polaridad creadora — el “dos” como tensión necesaria |
 | **III** | El Mapa de la Corrupción | Revelación de los siete dominios del pecado | **Tríada**: observación, diagnóstico, propósito |
 | **IV** | Pereza | Despertar en el pantano del olvido | Virtud: *Diligencia* — casco del Megazord - justicia(Dim) como protagonista|
