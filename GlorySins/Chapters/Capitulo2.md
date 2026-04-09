@@ -27,4 +27,4 @@ Mujer:
 Hombre:
 "Yo no voy a quedarme aquí sin hacer nada. Necesito respuestas."
 
-El silencio cayó como un peso insoportable. El viento levantó la arena entre ellos, formando una muralla efímera. Ambos comprendieron que sus palabras eran inútiles, que intentar convencer al otro era perder tiempo. Se miraron con desdén, incapaces de soportar la presencia mutua. Sin despedirse, giraron en direcciones opuestas: él hacia la ciudad, ella hacia las aldeas. El amanecer los dividió, y la misión quedó fragmentada en dos caminos irreconciliables.
+El silencio cayó como un peso insoportable. El viento levantó la arena entre ellos, formando una muralla efímera. Ambos comprendieron que sus palabras eran inútiles, que intentar convencer al otro era perder tiempo. Se miraron con desdén, incapaces de soportar la presencia mutua. Sin despedirse, giraron en direcciones opuestas: él hacia la ciudad, ella hacia las aldeas, dejándo su arco atrás.
