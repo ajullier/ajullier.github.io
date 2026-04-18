@@ -1,68 +1,123 @@
-# Despertar en la cueva del olvido
+# Derrotar al recaudador de sueños
 
-La mujer despertó lentamente, tendida en el suelo húmedo de aquella cueva oscura. No tenía noción de lo que había ocurrido ni de cómo había llegado allí. Su cuerpo pesaba, como si la energía se le hubiera drenado. A pocos pasos, los niños permanecían desmayados, inmóviles, con sus rostros apenas visibles entre la bruma.
-La neblina era tan espesa que apenas dejaba ver más allá de unos metros. Flotaba en el aire como un velo turbio, sofocante, que borraba los contornos y hacía imposible distinguir el límite entre suelo, pared y techo. El silencio era absoluto, roto solo por un goteo lejano que resonaba como un eco en la penumbra. De pronto, un sonido emergió de la densidad: una sinfonía. Una banda completa, con flautas, cuerdas y metales que se entrelazaban en una melodía solemne. Por un instante, la mujer pensó que aquella música provenía de su propia mente, igual que la voz que había escuchado antes. Pero su duda se desvaneció cuando los niños, al despertar sobresaltados, abrieron los ojos y murmuraron con asombro:
+El recaudador lo observaba desde su trono, hinchado como un sapo podrido. Su carne desbordaba la silla, húmeda y reluciente de grasa. El traje oscuro le estrangulaba el vientre, brillando con sudor rancio. Una galera ridícula se tambaleaba sobre su cráneo descomunal. Grotesco. Hambriento. Los ojos fríos se clavaron en él como garras, calculando su valor. La boca se abrió, un pozo negro y baboso, mientras las manos regordetas giraban anillos con ancias de querer llenarse con más.
+ 
+Su voz salió viscosa, primero como un reproche:
+—Mírate… esas ropas limpias, intachables. ¿Quién te crees que eres? Aquí los hombres sudan, se manchan, se desgastan. Tú, en cambio, pareces recién salido de un salón de espejos.
+Se inclinó hacia adelante, la boca grande abierta en una mueca que parecía sonrisa.
+—Y esa piel… menos bronceada, menos marcada por el sol. Como la de los nobles que nunca trabajan, que nunca cargan barro ni hierro.
+El tono cambió, más frío, más calculador:
+—¿Sabes lo que provocas? Eres una amenaza para el orden de la ciudad. Los ciudadanos podrían desear lo que ven en ti: ropas perfectas, piel clara, un aire distinto. Eso despierta hambre, despierta resentimiento.
+El recaudador se acomodó en el trono, las manos pequeñas jugando con los anillos pesados.
+—No eres uno de ellos. No eres uno de nosotros. Debes pertenecer a la realeza de algún país lejano.
+Su mirada se clavó en el hombre celestial, fija, sin parpadear.
+—Dime… ¿cuál es tu nombre?
+El hombre celestial sostuvo la mirada. No buscó excusas, no inventó linajes. Su voz salió baja, firme, como quien revela un vacío:
+—No tengo nombre.
+El silencio se extendió por el salón. La frase no era una evasiva, sino una verdad desnuda. Había llegado a la ciudad buscando respuestas, y lo único que podía ofrecer era esa ausencia.
+El recaudador, con la boca grande entreabierta, lo observó como si aquella confesión fuera más peligrosa que cualquier título nobiliario.
+El recaudador ladeó la galera pequeña sobre su enorme cabeza y dejó escapar una risa viscosa.
+El recaudador ladeó la galera pequeña sobre su enorme cabeza y dejó escapar una risa viscosa.
+—Ah… ya entiendo. No recuerdas quién eres. Un caso de amnesia, ¿verdad? Qué conveniente.
+Se inclinó hacia adelante, la boca grande abierta en una mueca que parecía sonrisa.
+—Quizás pueda ayudarte. Tal vez seas de tierras frías, donde la piel se mantiene clara y las ropas nunca se manchan.
+Su mirada fija y fría se clavó en el hombre celestial, como quien juega con una presa antes de devorarla.
+—Dime entonces… ¿de dónde vienes?
+El hombre celestial no titubeó. Su voz salió seca, inmediata:
+—No tengo país.
+El recaudador se quedó inmóvil, los ojos fijos en él, como si aquella respuesta fuera más peligrosa que cualquier confesión de nobleza. La galera pequeña tembló sobre su cabeza hinchada, incapaz de sostener el peso de la revelación.
+Se inclinó hacia adelante, la boca grande abierta en una mueca burlona.
+—¿Acaso caíste del cielo?
 
-—¿Lo escuchas?… ¿Esa música?
+El hombre celestial se estremeció. Por un instante, se sintió comprendido. Bajó la guardia y respondió con franqueza, casi con alivio:
+—Sí.
+El silencio duró apenas un segundo. Luego estallaron las carcajadas. El recaudador rió primero, con un sonido húmedo y grotesco, y sus hombres lo siguieron, resonando en coro como un eco cruel.
+De pronto, el recaudador se calló. La boca grande se cerró en un gesto severo. Sus soldados, asustados, imitaron el silencio, como si temieran que la risa prolongada pudiera costarles la vida.
 
-La mujer comprendió entonces que no era una ilusión. La sinfonía estaba allí, flotando en la neblina, envolviendo el espacio como un recuerdo vivo.
+El recaudador lo miró con ojos fríos, calculando.
+—Entonces dime… ¿qué vienes a hacer aquí?
+El hombre celestial bajó la mirada un instante, inseguro.
+—No estoy seguro.
+El recaudador se inclinó más, y sus ojos se fijaron en el pecho del extraño. Allí brillaba un dibujo dorado: una balanza.
+—Ah… interesante. ¿Acaso perteneces a alguna asociación de estándares y medidas?
+El hombre celestial parpadeó, confundido. Su voz salió sincera, sin artificio:
+—No lo sé. El símbolo está ahí… pero ignoro su origen.
+El recaudador chasqueó los dedos.
+—¡Pepo! —tronó su voz viscosa, llamando al soldado gordo.
+El hombre se sobresaltó, sudoroso, y dio un paso adelante.
+—Tráeme un diccionario —ordenó el recaudador con tono burlón—. Vamos a buscar qué significa una balanza.
+El soldado gordo obedeció de inmediato, corriendo hacia la mesa donde reposaban los libros. El recaudador, mientras tanto, mantenía la mirada fija en el hombre celestial, como si quisiera arrancar la verdad de su silencio.
 
-Los ojos de los niños brillaban con un entusiasmo que parecía olvidado hacía mucho tiempo. Se levantaron de un salto y, casi hipnotizados, corrieron hacia la dirección de donde provenía la música, perdiéndose en la neblina espesa que llenaba la cueva.
+Pepo regresó con el pesado tomo entre sus manos sudorosas. Lo abrió torpemente, las páginas crujieron, y lo entregó al recaudador.
+El recaudador lo tomó con gesto solemne, hojeó unas páginas y leyó en voz alta, con tono teatral:
+—“Es un instrumento de medición que sirve para determinar la masa de un objeto comparándolo con un patrón de masa conocido. Los componentes principales incluyen dos platillos suspendidos de los extremos de una barra horizontal, un punto de apoyo o fulcro central y un indicador de equilibrio.”
+Se detuvo en esa última palabra. La repitió, lenta, como si pesara más que todo el resto:
+—Equilibrio…
+Cerró el diccionario de golpe, y la sala entera se estremeció con el sonido.
+—Eso es lo que quieres romper, ¿verdad? El delicado equilibrio de esta ciudad.
+Su voz se volvió más áspera, acusatoria:
+—Con tu ropa impecable, tu piel distinta, tu aire de nobleza… haces que los ciudadanos sueñen con lo que no pueden tener.
+El recaudador se inclinó hacia adelante, la galera pequeña temblando sobre su enorme cabeza.
+—Tú eres una amenaza.
 
-La mujer, en cambio, seguía cansada y confundida. Su cuerpo pesaba, y cada paso era un esfuerzo. Por un instante pensó que no podría seguirlos, que la bruma la retendría allí para siempre. Pero reunió fuerzas, apretó los labios y avanzó lentamente, guiada por el eco de la sinfonía y las voces lejanas de los niños. Hasta que finalmente los encontró detenidos, inmóviles, como hipnotizados. Estaban parados frente a un objeto en el suelo. La neblina se abrió apenas, revelando una flauta. Su superficie era antigua, gastada, pero aún brillaba con un fulgor extraño, como si guardara la memoria de las melodías que alguna vez había producido. Los niños la miraban con fascinación, sin atreverse a tocarla. La mujer, todavía cansada y confundida, se inclinó y tomó el instrumento. Al hacerlo, notó una inscripción grabada en el metal: “Ergía”. La palabra parecía vibrar con la misma música que llenaba el aire, como si la flauta fuera el corazón de aquel recuerdo que se manifestaba en la neblina. El silencio volvió a envolverlos, pero la inscripción ardía en su mente, como un enigma que debía descifrar.
+El hombre celestial ignoró la acusación. Su voz se mantuvo calma, casi curiosa:
+—Me parece interesante… por favor, cuénteme más sobre esa idea de mantener el equilibrio.
+El recaudador se enderezó en su trono, orgulloso y a la vez temeroso, sabiendo que no podría vencerlo por la fuerza.
+—El rey me exige un monto fijo, en moneda oficial, por cada persona. Con eso se paga al ejército, se construyen canales de riego, se ofrecen préstamos, se levantan hospitales, se sostienen los funcionarios públicos. Es el orden que mantiene a la ciudad en pie.
+Su boca grande se abrió en una sonrisa que no era sonrisa.
+—Pero yo… yo puedo cobrar por encima de esos montos. Quedarme con lo sobrante. Y además, aplico un porcentaje incremental según los ingresos declarados.
+El recaudador se inclinó hacia adelante, la galera pequeña temblando sobre su enorme cabeza.
+—Es mi sistema. Y funciona. Todos viven con lo suficiente para subsistir. Nadie tiene demasiado, nadie tiene demasiado poco. Así evito la envidia, así evito que la sociedad se pudra.
+Su voz se volvió solemne, casi como si justificara su pecado con un mandato divino:
+—Lo hago por el bien de todos. Por el equilibrio.
 
-Fue entonces cuando la niña, con voz temblorosa pero llena de certeza, murmuró:
-—Es de mi hermana.
-Durantes segundos, que parecieron eternos, permanecieron callados.
-Con voz baja, casi temiendo la respuesta, la mujer preguntó a la niña:
-—¿Qué pasó con tu hermana?
-La niña bajó la mirada, y tras un instante de silencio respondió con un tono cargado de nostalgia:
-—Desapareció hace mucho tiempo. Mi hermano era apenas un bebé... aquellos tiempos eran mejores, todo parecía más vivo cuando ella tocaba.
-
-El silencio se quebró de repente. Unos murmullos se filtraban desde la neblina, como voces apagadas que reclamaban algo. Los tres caminaron hacia aquella dirección, guiados por el sonido. A medida que se acercaban, los murmullos se transformaban en regaños, ásperos y tensos, que amenazaban la calma del lugar.
-Finalmente, la neblina se abrió y reveló tres figuras. Una joven, estaba arrodillada frente a un hombre y una mujer mayores. Con lágrimas en los ojos, les suplicaba que le permitieran irse a la ciudad. Su voz temblaba, pero insistía: aquella era su única oportunidad de tener un futuro como música.
-Los padres, sin embargo, la reprendían con dureza. Le reprochaban que era demasiado joven para abandonar la casa, que ninguno de ellos podía acompañarla, y que además necesitaban de ella para cuidar a sus hermanos pequeños. “Hace poco tu madre tuvo a tu hermanito —decían— y necesitamos tu ayuda con las labores del hogar.”
-La joven, posada sobre sus rodillas, seguía rogando, aferrada a la esperanza de que su talento con la flauta pudiera abrirle un camino distinto. Pero las palabras de los padres caían como un muro, sofocando su sueño y condenándola a la rutina.
-
-La mujer celestial, aún con la flauta en sus manos, corrió hacia la escena con la esperanza de poder intervenir. Quiso hablar, detener los reproches, ofrecer una salida distinta a la joven que lloraba frente a sus padres. Extendió la mano y tocó el hombro del hombre. En ese instante, todo se desvaneció. Las figuras se disolvieron como humo, los regaños se apagaron, y las lágrimas de la muchacha se fundieron con la neblina espesa que llenaba la cueva. El recuerdo se quebró en fragmentos, absorbido por el aire turbio, como si nunca hubiera existido.
-El silencio volvió a dominar el lugar. Solo quedaba la mujer, los niños, y la flauta que seguía vibrando débilmente en sus manos, como si guardara aún la memoria de lo que acababan de presenciar.
-
-La niña permaneció en silencio unos instantes, como si la neblina misma le ayudara a recordar. Luego, con voz suave, comenzó a evocar aquellos tiempos más felices.
-
-—Mi hermana mayor había viajado a la ciudad con la banda del pueblo —dijo—. En ese viaje, un noble habló con el director de la banda y le ofreció ser su mecenas. El director se lo contó a mi hermana, y ella recibió la noticia con entusiasmo, llena de ilusión. Quería ser una música famosa y tocar en los teatros de la ciudad.
-
-La niña bajó la mirada, y su voz se quebró apenas:
-
-—Pero cuando le presentó la idea a nuestros padres… ellos se negaron. Dijeron que era demasiado joven, que no podía ir sola, que debía quedarse para ayudar en la casa y cuidar de nosotros.
-
-El recuerdo flotaba en el aire como un eco, y la mujer celestial comprendió que lo que estaban presenciando no era solo una memoria, sino la raíz de una herida que había marcado el destino de aquella familia. La neblina parecía vibrar con las palabras, como si el espacio mismo se impregnara de la frustración y la esperanza perdida.
-
-La neblina comenzó a iluminarse con destellos, como si luces invisibles se proyectaran en su interior. Entre ellas, una figura se fue delineando poco a poco: la misma joven de antes, la hermana mayor. Su silueta se volvió nítida, caminando con lentitud, mientras su voz emergía no de su boca, sino de las paredes mismas, resonando como un lamento atrapado en la cueva:
-—¿Para qué?… ¿Qué sentido tiene seguir vivo?… Quisiera dormir y jamás despertar…
-Los niños y la mujer escuchaban en silencio, estremecidos. La joven avanzó hasta la orilla de un río que se insinuaba entre la bruma. Se acostó allí, como si buscara entregarse al agua y al olvido.
-El tiempo pareció acelerarse. Ante sus ojos, el cuerpo de la joven comenzó a cambiar, a crecer, a deformarse. Su piel se volvió viscosa, su forma se expandió hasta cubrir el cauce. Lo que antes era una niña con sueños de música se transformaba lentamente en una masa gigantesca, un caracol monstruoso que se posaba sobre el río, bloqueando su circulación.
+El hombre celestial lo miró con calma, y habló con voz serena:
+—¿Tiene sentido vivir sólo para sobrevivir? El ser humano tiene el potencial de hacer mucho más. Considero que cada persona soñar con lo que puede lograr… y a la vez soñar más allá de toda mesura.
 
 
-La mujer celestial comprendió entonces que aquello no era solo un recuerdo: era la revelación del origen de aquel ser, nacido del dolor y la renuncia de aquella joven que alguna vez había soñado con ser música.
+El hombre celestial lo miró con calma, y habló con voz serena:
+—¿Tiene sentido vivir sólo para sobrevivir? El ser humano tiene el potencial de hacer mucho más. Considero que cada persona puede soñar con lo que puede lograr… y a la vez soñar más allá de toda mesura.
+El recaudador se estremeció, pero no retrocedió. Su boca grande se abrió en una mueca que parecía sonrisa, aunque sus ojos permanecían fríos.
+—Los sueños… siempre traen consigo la desilusión. Cuando la gente sueña demasiado, se estrella contra la realidad. Y entonces llega el resentimiento, la rabia, la envidia.
+Se inclinó hacia adelante, la galera pequeña temblando sobre su enorme cabeza.
+—Yo evito eso. Yo mantengo a la gente en equilibrio. Les doy lo suficiente para subsistir, ni más ni menos. Así no sueñan con lo imposible, así no se pudren por dentro.
+Su voz se volvió solemne, casi como si justificara su pecado con un mandato divino:
+—Los sueños desmedidos destruyen ciudades. Yo les enseño a vivir con lo justo. Es mi deber. Es mi sistema. Y funciona.
 
-La imagen se apagó de golpe. La voz de la jóven inundó toda la habitación diciendo: 
--Y asi, mi sueño de fama terminó.
-En medio de la neblina surgió una luz que iluminaba el cuerpo dormido de la joven. Su hermana menor salió corriendo hacia ella, gritando con desesperación su nombre:
+El recaudador se inclinó hacia adelante, la galera pequeña temblando sobre su enorme cabeza.
+—Los sueños desmedidos destruyen ciudades. Yo les enseño a vivir con lo justo. Es mi deber. Es mi sistema. Y funciona.
+El hombre celestial lo miró con calma, y su voz se volvió firme, aunque no agresiva:
+—Tu sistema en sí mismo constituye un robo. No sólo quita lo material, también arrebata la voluntad de las personas. Les quita su libertad: la libertad de soñar, de intentar algo que supere lo establecido, de buscar un futuro más grande para la humanidad.
+Se inclinó apenas, como si sus palabras fueran un peso que caía sobre el aire:
+—Tu sistema evita el progreso. Hace que todos se estanquen. Les niega la posibilidad de crecer, de transformar, de alcanzar lo que está más allá de la mera subsistencia.
+El silencio se volvió denso. Los soldados miraban al recaudador, esperando su reacción. El hombre celestial permanecía sereno, como si la verdad no necesitara gritarse.
 
-— ¡Ergía!
 
-El llamado resonó en el aire como un eco que atravesaba las paredes vivientes. Ergía abrió lentamente los ojos, pero permanecía somnolienta, atrapada en un letargo profundo. La hermana la sacudía con brusquedad, intentando arrancarla de ese sueño, mientras las lágrimas le corrían por el rostro.
-El hermano, en cambio, se quedó atrás. Quería acercarse, pero el miedo lo retenía: apenas conocía a su hermana mayor, era como encontrarse con alguien nuevo, desconocido. Finalmente, buscó valor en la mano de la mujer celestial, que aún sostenía la flauta. Juntos se aproximaron lentamente.
-La mujer extendió el brazo y acercó el instrumento hacia Ergía. Su voz, firme pero compasiva, rompió el silencio:
+El recaudador reaccionó con furia contenida, su voz se volvió áspera y defensiva:
+—¿Robo? ¡No! Yo sostengo el orden. Sin mi sistema, la gente se perdería en sus delirios, en sueños imposibles que sólo traen ruina. Yo les doy lo justo, lo necesario, lo que mantiene la maquinaria funcionando. El rey recibe lo que necesita para el ejército, los canales, los hospitales, los préstamos, los funcionarios. Y yo… yo administro lo demás.
+Se inclinó hacia adelante, la galera pequeña temblando sobre su enorme cabeza.
+—¿Libertad? La libertad de soñar sin medida es la libertad de destruirse. Yo evito que se pudran por dentro, que se devoren entre ellos. Mi sistema no es un robo, es un escudo. Es lo que mantiene a esta sociedad en pie.
+Su boca grande se abrió en una sonrisa que no era sonrisa, más cercana a un gesto de amenaza.
+—Sin mí, todo se derrumbaría.
 
-— Sé que te arrancaron los sueños. Querías ser música, brillar en escenarios… y te lo quitaron. Pero mira a tus hermanos. Están aquí. Te quieren tal como eres. Si aún amas tocar, hazlo para ellos. No será un gran teatro, pero será real. Eso es todo lo que importa.
+El hombre celestial lo miró con firmeza, y su voz resonó como un golpe seco:
+—No importa el motivo, sigues siendo un ladrón.
+El recaudador se abalanzó sobre él con una velocidad sobrehumana. Su puño enorme impactó en el rostro del celestial, lanzándolo contra la pared del palacio. La piedra se quebró en un estruendo, y el cuerpo del hombre atravesó los escombros hasta caer afuera, donde la multitud presenció la escena.
+El hombre celestial se incorporó lentamente. Se miró a sí mismo, perplejo: ni una herida, ni una gota de sangre, ni una mancha en su ropa. Estaba intacto.
+El recaudador salió de un salto tras él, cayendo frente al público. Su cuerpo comenzó a convulsionar, y la metamorfosis se desató. La piel se tornó húmeda y verdosa, la boca se ensanchó grotescamente, los ojos se abultaron. Las telas de su traje se ajustaron hasta desgarrarse en algunos puntos, revelando la nueva forma: un sapo antropomórfico, aún vestido, pero deformado por su propia transformación.
+La multitud retrocedió, horrorizada, mientras el recaudador —ahora sapo— croaba con voz humana y monstruosa, mostrando que su poder no era sólo económico, sino también físico y abominable.
 
-Las palabras quedaron suspendidas en la neblina, como si el aire mismo las guardara. Ergía, aún somnolienta, miró la flauta con un destello de reconocimiento, y por primera vez, la pesadez de su cuerpo pareció aliviarse.
+El sapo antropomórfico lanzó un rugido gutural y se abalanzó sobre el hombre celestial. Los golpes resonaban como truenos en la plaza, pero a pesar del intercambio feroz, el celestial permanecía sereno, seguro, con el control absoluto de la contienda.
+En un instante, sus movimientos se aceleraron: una combinación precisa de puños impactó contra el cuerpo del sapo, obligándolo a arrodillarse ante él. La multitud contuvo el aliento.
+El hombre celestial entonces desenvainó su espada. Sus ojos comenzaron a brillar con una luz blanca intensa, y su voz cambió: ya no era una sola, sino muchas, como si varias personas hablaran al unísono desde su interior.
+El veredicto se alzó en el aire, solemne y terrible:
+—Quedas condenado por haber arrebatado, en contra de su voluntad, no sólo el dinero, sino también los sueños de todos los ciudadanos. Has encadenado su esperanza, has sofocado su libertad. Tu sistema no es equilibrio, es despojo.
+La luz blanca envolvió al celestial, y el sapo, arrodillado, temblaba bajo el peso de la sentencia que caía sobre él como un juicio inapelable.
 
-La joven Ergía se incorporó lentamente, aún con la luz bañando su cuerpo. Tomó la flauta con firmeza y, tras mirar a todos los presentes, comenzó a tocar. Pero esta vez había algo distinto en su gesto: no buscaba aplausos ni vítores, no esperaba reconocimiento alguno. Tocaba porque sabía que era lo correcto, porque había comprendido que su propósito no estaba en la fama, sino en dar alegría a quienes la rodeaban. 
-
-El hermano más pequeño, impulsivo y lleno de energía, comenzó a moverse al ritmo de la música. Era la primera vez que se dejaba llevar de esa manera. Con una sonrisa espontánea, tomó la mano de su hermana del medio y la de la mujer celestial, y juntos comenzaron a girar en círculos alrededor de Ergía. De repente, el ambiente cambió. El clima se volvió festivo, como si la música hubiera despertado una fuerza dormida en todos ellos. La neblina empezó a disiparse, y las paredes de la cueva se desvanecieron poco a poco, dejando entrar la luz. A través de las aberturas, se podían ver las plantas del pantano, verdes y vivas, como si celebraran también aquella melodía.
-
-La alegría se quebró de golpe. El agua irrumpió como un rayo en la escena, arrastrando a todos con una fuerza descomunal. La neblina festiva se disolvió en un instante, reemplazada por la oscuridad que cubrió todo.
-
-La tempestad ya había pasado. El rugido del agua se había extinguido. La mujer abrió los ojos y se encontró suspendida entre las aguas, rodeada de cadáveres. La aldea había sido arrasada; la represa había desaparecido, pero con ello vino la corriente que se llevó la vida de todos sus habitantes. Ella miraba los cuerpos inertes, marcados por cortes, heridas y sangre, y no podía comprender cómo seguía con vida. Su piel estaba intacta, su cuerpo inalterado, como si nada pudiera dañarla. Fue entonces cuando tomó plena conciencia de su inmortalidad. La culpa la atravesó como un hierro ardiente. La voz le había susurrado que los salvara… y ahora todo terminaba así, en sangre y silencio. ¿No habría sido más sencillo convencer a los aldeanos de huir antes de que la curiosidad los devorara? La impotencia la ahogó como una mano fría alrededor del cuello. Solo pudo abrir la boca y soltar un grito desgarrador, un lamento que se fundió con el silencio viscoso de la muerte y el murmullo indiferente del río, que volvía a correr libre, como si nada hubiera pasado.
+El hombre celestial levantó la espada y, con un movimiento firme y certero, decapitó al sapo. El cuerpo cayó pesadamente al suelo y, ante los ojos de todos, volvió a tomar la forma del recaudador.
+Los ciudadanos quedaron en silencio. Fueron unos segundos que parecieron eternos, hasta que el miedo los dominó. Entonces comenzaron a arrojar palos y piedras contra el celestial, mientras gritaban con furia:
+—¡Asesino!
+—¡Lárgate de la ciudad!
+En medio de la confusión, aparecieron los dos fieles soldados. El gordo, por primera vez, mostró una expresión de desconcierto y no pronunció palabra alguna. El más elegante y hermoso de los dos, en cambio, dio un paso al frente y habló con voz sabia:
+—Será mejor que te marches.
+El hombre celestial, sin responder, aprovechó su fuerza sobrehumana para saltar por los techos de las casas y alejarse de la multitud. Mientras avanzaba, su mente se llenaba de desconcierto: no entendía cómo podían ser tan desagradecidos los ciudadanos. Él los había salvado, tal y como le había dicho la voz.

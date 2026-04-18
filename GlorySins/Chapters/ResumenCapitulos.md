@@ -5,8 +5,8 @@
 | **I** | El UNO | ¿Qué es el uno? ¿Qué es la verdad? ¿Qué soy si no existiera la verdad? | Unidad primordial como orden del todo |
 | **II** | La Dualidad | Conflicto entre Justicia (*SOL*) y Misericordia (*LUNA.*) Los protagonistas se separan| Polaridad creadora — el “dos” como tensión necesaria |
 | **III** | La Triada | Los protagonistas descubren que quieren liberar a los pobladores de la tiranía de los demonios. | **Tríada**: Se presentan villanos en un orden jerárquico. Dos triadas demoniacas. La misión de los protagonistas sería el equivalente al 1 que unifica la dualidad, completando el 3.|
-| **IV** | Pereza | Despertar en la cueva del olvido | Virtud: *Diligencia* — casco del Megazord - misericordia como protagonista|
-| **V** | Avaricia | Derrotar al recaudador de sueños | Virtud: *Generosidad* — brazo izquierdo - justicia como protagonista|
+| **IV** | Avaricia | Derrotar al recaudador de sueños | Virtud: *Generosidad* — brazo izquierdo - justicia como protagonista|
+| **V** | Pereza | Despertar en la cueva del olvido | Virtud: *Diligencia* — casco del Megazord - misericordia como protagonista|
 | **VI** | Lujuria | Purificación del templo corrupto.| Virtud: *Pureza* — brazo derecho - misericordia como protagonista|
 | **VII** | Ira | Calma al guerrero incendiario | Virtud: *Paciencia* — escudo - justicia como protagonista|
 | **VIII** | Gula | Ruptura del festín eterno | Virtud: *Templanza* — pierna izquierda - misericordia como protagonista|
