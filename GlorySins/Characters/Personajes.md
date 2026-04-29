@@ -22,13 +22,3 @@ caracol 🐌 = pereza OK
 cerdo 🐖 = gula OK
 
 cabra 🐐 = lujuria OK
-
-```mermaid
-graph TD;
-    Soberbia-->Envidia;
-    Soberbia-->Pereza;
-    Envidia-->Ira;
-    Envidia-->Avaricia;
-    Pereza-->Gula;
-    Pereza-->Lujuria;
-```
