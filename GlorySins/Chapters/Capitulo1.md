@@ -73,17 +73,17 @@ Si estás dentro de mí,
 
 ¿por qué dudo?
 
-¿Por qué a veces elijo lo absurdo? 
+¿Por qué a veces elijo lo absurdo 
 
-Y en el camino me destruyo.
+y en el camino me destruyo?
 
 ¿Será que tu voz es un susurro
 
 al lado del grito del resto del mundo?
 
-¿O será que tú también evolucionas?
+¿O será que tú también evolucionas
 
-Y aún no terminas de crecer en mi
+y aún no terminas de crecer en mi?
 
 ## V
 
@@ -111,8 +111,8 @@ Pero si no existes,
 
 ¿lo bueno de lo malo?
 
-¿cómo sabré lo que soy?
+¿cómo sabré lo que soy
 
-Si lo que fui ayer
+si lo que fui ayer
 
-no es lo mismo que soy hoy
+no es lo mismo que soy hoy?
